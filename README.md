@@ -1,1 +1,1 @@
-sub to fzurt on yt
+hello , i'm fzurt (@weloveufzurt)
